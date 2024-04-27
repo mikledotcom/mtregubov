@@ -1,1 +1,0 @@
-# mtregubov personal website
